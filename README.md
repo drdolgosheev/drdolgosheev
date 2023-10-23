@@ -5,4 +5,4 @@ Telegram: @drdolgosheev
 
 Mail: drdolgosheev.int@yandex.ru
 
-CV: https://disk.yandex.ru/i/hJGtYWFCA8HDmQ
+CV: https://disk.yandex.ru/i/9swG2G6HZ8Upmw
